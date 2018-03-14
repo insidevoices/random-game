@@ -1,2 +1,3 @@
 # random-game
-random game i made for school. HULULULULULULULULULULULULULULULULULULULU
+dog frog this is no pog yeet
+
